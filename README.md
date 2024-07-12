@@ -1,4 +1,4 @@
-## Hi, this is Fzy. :wave: 
+## Hi, :wave: 
 
 <!-- Introduction -->
 
